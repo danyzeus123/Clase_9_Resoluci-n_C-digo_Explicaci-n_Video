@@ -1,1 +1,1 @@
-# Clase_9_Resoluci-n_C-digo_Explicaci-n_Video
+# Clase_9_Resolucion_Codigo_Explicacion_Video
